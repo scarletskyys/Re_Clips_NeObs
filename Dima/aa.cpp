@@ -1,1 +1,1 @@
-fsssbsbasdfadfasf
+-трахнув свою руку
